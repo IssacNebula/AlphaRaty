@@ -1,0 +1,2 @@
+# AlphaRaty
+Free Template Code !
